@@ -1,1 +1,1 @@
-# AmazoneDeals
+https://BestDealWithRam.github.io/AmazoneDeals/
